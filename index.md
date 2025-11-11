@@ -1,4 +1,4 @@
- 
+# Samuel Mahjouri
 **Email:** smahjouri@ucsd.edu  
 **Section:** B20 — Mentor: [Kyle Shannon]  
 
